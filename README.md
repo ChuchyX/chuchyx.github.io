@@ -1,1 +1,0 @@
-# chuchyx.github.io
